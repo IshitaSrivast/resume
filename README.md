@@ -1,0 +1,1 @@
+[![Alt text](Ishita_Resume.jpg)](Ishita_Resume.pdf)
